@@ -7,5 +7,5 @@
 
 ## Salsas
 
-- [Salsa Verde](./salsas/salsverde.md)
+- [Salsa Verde](./salsas/salsaverde.md)
 - [guaca-goddess](./salsas/guacaGodess.md)
