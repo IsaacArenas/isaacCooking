@@ -9,3 +9,6 @@
 
 - [Salsa Verde](./salsas/salsaverde.md)
 - [guaca-goddess](./salsas/guacaGodess.md)
+
+## Others
+- [Low Carb Tortillas](./others/tortillas.md)
