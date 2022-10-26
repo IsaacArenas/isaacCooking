@@ -22,4 +22,15 @@ The prepping comes in 2 parts Adobo(the marinate) & The Meat.
 - 3 cubes of achiote paste (tbd on the specific weight
 - 1/2 cup of olive oil 
 
+### Meat 
+On The Meat side .... theres a couple of options depending on what you can find....
+
+#### Pork Shoulder / Boston Butt
+The Pork shoulder / pork butt has an amazing balance between fat and meat so its probably the best meat to used on the stack
+
+
+#### Pork Loin or tender loin
+The pork loin or tender loind doesnt have enough fat but the meat is really good to add more fat into the mix you can use smoked bacon or double smoked bacon between the stack layes 
+
+
 
