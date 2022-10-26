@@ -27,10 +27,16 @@ On The Meat side .... theres a couple of options depending on what you can find.
 
 #### Pork Shoulder / Boston Butt
 The Pork shoulder / pork butt has an amazing balance between fat and meat so its probably the best meat to used on the stack
-
+- 6 lbs of pork shoulder
 
 #### Pork Loin or tender loin
 The pork loin or tender loind doesnt have enough fat but the meat is really good to add more fat into the mix you can use smoked bacon or double smoked bacon between the stack layes 
 
+- 32 oz of smoked bacon
+- 5 lbs of pork loin
 
+## Preparation
 
+Starting With The Adobo :
+
+On a Pan pour the **1/2 cup of olive oil** and start adding the next ingredients in order ... **1/2 a spoon of oregano**, **1 spoon of cumin**, **1 spoon of cloves**, 
